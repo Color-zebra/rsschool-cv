@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Color-zebra.github.io/rsschool-cv/cv
